@@ -12,3 +12,4 @@ Per què he triat aquest tema: He triat els videojocs perquè m'agrada descobrir
 
 
 
+Data de creació: 13/10/2026
